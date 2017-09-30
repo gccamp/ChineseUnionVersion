@@ -1,223 +1,223 @@
-HILLS LIKE WHITE ELEPHANT
+### 《白象似的群山》
 
-by Ernest Hemingway
+#### 作者：海明威 　(翟象俊译)
+　　 
+埃布罗河河谷的那一边，白色的山冈起伏连绵。这一边，白地一片，没有树木，车站在阳光下两条铁路线中间。紧靠着车站的一边，是一幢笼罩在闷热的阴影中的房屋，一串串竹珠子编成的门帘挂在酒吧间敞开着的门口挡苍蝇。那个美国人和那个跟他一道的姑娘坐在那幢房屋外面阴凉处的一张桌子旁边。天气非常热，巴塞罗那②来的快车还有四十分钟才能到站。列车在这个中转站停靠两分钟，然后继续行驶，开往马德里。 
 
-The hills across the valley of the Ebro were long and white. On this side there was no shade and no trees and the station was between two lines of rails in the sun. Close against the side of the station there was the warm shadow of the building and a curtain, made of strings of bamboo beads, hung across the open door into the bar, to keep out flies. The American and the girl with him sat at a table in the shade, outside the building. It was very hot and the express from Barcelona would come in forty minutes. It stopped at this junction for two minutes and went to Madrid.
+"咱们喝点什么呢？"姑娘问。她已经脱掉帽子，把它放在桌子上。 
 
-‘What should we drink?’ the girl asked. She had taken off her hat and put it on the table.
+"天热得很，"男人说。 
 
-‘It’s pretty hot,’ the man said.
+"咱们喝啤酒吧。" 
 
-‘Let’s drink beer.’
+"Dos cervezas，"（西班牙语：意为"来两杯啤酒"）男人对着门帘里面说。 
 
-‘Dos cervezas,’ the man said into the curtain.
+"大杯的？"一个女人在门口问。 
 
-‘Big ones?’ a woman asked from the doorway.
+"对。两大杯。" 
 
-‘Yes. Two big ones.’
+那女人端来两大杯啤酒和两只毡杯垫。她把杯垫和啤酒杯一一放在桌子上。看看那男的，又看看那姑娘。姑娘正在眺望远处群山的轮廓。山在阳光下是白色的，而乡野则是灰褐色的干巴巴的一片。
 
-The woman brought two glasses of beer and two felt pads. She put the felt pads and the beer glass on the table and looked at the man and the girl. The girl was looking off at the line of hills. They were white in the sun and the country was brown and dry.
+"它们看上去象一群白象，"她说。 
 
-‘They look like white elephants,’ she said.
+"我从来没有见过象，"男人把啤酒一饮而尽。 
 
-‘I’ve never seen one,’ the man drank his beer.
+"你是不会见过。" 
 
-‘No, you wouldn’t have.’
+"我也许见到过的，"男人说。"光凭你说我不会见过，并不说明什么问题。" 
 
-‘I might have,’ the man said. ‘Just because you say I wouldn’t have doesn’t prove anything.’
+姑娘看看珠帘子。"他们在上面画了东西的，"她说。"那上面写的什么？" 
 
-The girl looked at the bead curtain. ‘They’ve painted something on it,’ she said. ‘What does it say?’
+"Anis del Toro。是一种饮料。"（西班牙语：茴香酒） 
 
-‘Anis del Toro. It’s a drink.’
+"咱们能尝尝吗？" 
 
-‘Could we try it?’
+男人朝着珠帘子喊了一声"喂"。那女人从酒吧间走了出来。 
 
-The man called ‘Listen’ through the curtain. The woman came out from the bar.
+"一共是四雷阿尔。"（雷阿尔：旧时西班牙和拉丁美洲国家通用的一种银币。）
 
-‘Four reales.’ 
+"给我们再来两杯人Anis del Toro。" 
 
-‘We want two Anis del Toro.’
+"掺水吗？"
 
-‘With water?’
+"你要掺水吗？" 
 
-‘Do you want it with water?’
+"我不知道，"姑娘说。"掺了水好喝吗？" 
 
-‘I don’t know,’ the girl said. ‘Is it good with water?’
+"好喝。" 
 
-‘It’s all right.’
+"你们要掺水吗？"女人问。 
 
-‘You want them with water?’ asked the woman.
+"好，掺水。" 
 
-‘Yes, with water.’
+"这酒甜丝丝的就象甘草，"姑娘说，一边放下酒杯。 
 
-‘It tastes like liquorice,’ the girl said and put the glass down.
+"样样东西都是如此。" 
 
-‘That’s the way with everything.’
+"是的，"姑娘说。"样样东西都甜丝丝的象甘草。特别是一个人盼望了好久的那些东西，简直就象艾酒一样。" 
 
-‘Yes,’ said the girl. ‘Everything tastes of liquorice. Especially all the things you’ve waited so long for, like absinthe.’
+"喔，别说了。" 
 
-‘Oh, cut it out.’
+"是你先说起来的，"姑娘说。"我刚才倒觉得挺有趣。我刚才挺开心。" 
 
-‘You started it,’ the girl said. ‘I was being amused. I was having a fine time.’
+"好吧，咱们就想法开心开心吧。" 
 
-‘Well, let’s try and have a fine time.’
+"行啊。我刚才就在想法。我说这些山看上去象一群白象。这比喻难道不妙？" 
 
-‘All right. I was trying. I said the mountains looked like white elephants. Wasn’t that bright?’
+"妙。" 
 
-‘That was bright.’
+"我还提出尝尝这种没喝过的饮料。咱们不就做了这么点儿事吗--看看风景，尝尝没喝过的饮料？" 
 
-‘I wanted to try this new drink. That’s all we do, isn’t it – look at things and try new drinks?’
+"我想是的。" 
 
-‘I guess so.’
- 
-The girl looked across at the hills.
+姑娘又眺望远处的群山。 
 
-‘They’re lovely hills,’ she said. ‘They don’t really look like white elephants. I just meant the colouring of their skin through the trees.’
+"这些山美极了，"她说。"看上去并不真象一群白象。我刚才只是说，透过树木看去，山表面的颜色是白的。" 
 
-‘Should we have another drink?’
+"咱们要不要再喝一杯？" 
 
-‘All right.’
+"行。" 
 
-The warm wind blew the bead curtain against the table.
+热风把珠帘吹得拂到了桌子。 
 
-‘The beer’s nice and cool,’ the man said.
+"这啤酒凉丝丝的，味儿挺不错，"男人说。 
 
-‘It’s lovely,’ the girl said.
+"味道好极了，"姑娘说。 
 
-‘It’s really an awfully simple operation, Jig,’ the man said. ‘It’s not really an operation at all.’
+"那实在是一种非常简便的手术，吉格，"男人说。"甚至算不上一个手术。" 
 
-The girl looked at the ground the table legs rested on.
+姑娘注视着桌腿下的地面。 
 
-‘I know you wouldn’t mind it, Jig. It’s really not anything. It’s just to let the air in.’
+"我知道你不会在乎的，吉格。真的没有什么大不了。只要用空气一吸就行了。" 
 
-The girl did not say anything.
+姑娘没有作声。 
 
-‘I’ll go with you and I’ll stay with you all the time. They just let the air in and then it’s all perfectly natural.’
+"我陪你去，而且一直呆在你身边。他们只要注入空气，然后就一切都正常了。" 
 
-‘Then what will we do afterwards?’
+"那以后咱们怎么办？" 
 
-‘We’ll be fine afterwards. Just like we were before.’
+"以后咱们就好了，就象从前那样。" 
 
-‘What makes you think so?’
+"你怎么会这么想呢？" 
 
-‘That’s the only thing that bothers us. It’s the only thing that’s made us unhappy.’
+"因为使我们烦心的就只有眼下这一件事儿，使我们一直不开心的就只有这一件事儿。" 
 
-The girl looked at the bead curtain, put her hand out and took hold of two of the strings of beads.
+姑娘看着珠帘子，伸手抓起两串珠子。
 
-‘And you think then we’ll be all right and be happy.’
+"那你以为咱们今后就可以开开心心地再没有什么烦恼事了。" 
 
-‘I know we will. You don’t have to be afraid. I’ve known lots of people that have done it.’
+"我知道咱们会幸福的。你不必害怕。我认识许多人，都做过这种手术。" 
 
-‘So have I,’ said the girl. ‘And afterwards they were all so happy.’
+"我也认识许多人做过这种手术，"姑娘说。"手术以后他们都照样过得很开心。" 
 
-‘Well,’ the man said, ‘if you don’t want to you don’t have to. I wouldn’t have you do it if you didn’t want to. But I know it’s perfectly simple.’
+"好吧，"男人说，"如果你不想做，你不必勉强。如果你不想做的话，我不会勉强你。不过我知道这种手术是很便当的。" 
 
-‘And you really want to?’
+"你真的希望我做吗？" 
 
-‘I think it’s the best thing to do. But I don’t want you to do it if you don’t really want to.’
+"我以为这是最妥善的办法。但如果你本人不是真心想做，我也绝不勉强。" 
 
-‘And if I do it you’ll be happy and things will be like they were and you’ll love me?’
+"如果我去做了，你会高兴、事情又会象从前那样、你会爱我--是吗？" 
 
-‘I love you now. You know I love you.’
+"我现在就爱着你。你也知道我爱你。" 
 
-‘I know. But if I do it, then it will be nice again if I say things are like white elephants, and you’ll like it?’
+"我知道。但是如果我去做了，那么倘使我说某某东西象一群白象，就又会和和顺顺的，你又会喜欢了？" 
 
-‘I’ll love it. I love it now but I just can’t think about it. You know how I get when I worry.’
+"我会非常喜欢的。其实我现在就喜欢听你这么说，只是心思集中不到那上面去。心烦的时候，我会变成什么样子，你是知道的。" 
 
-‘If I do it you won’t ever worry?’
+"如果我去做手术，你就再不会心烦了？" 
 
-‘I won’t worry about that because it’s perfectly simple.’
+"我不会为这事儿烦心的，因为手术非常便当。" 
 
-‘Then I’ll do it. Because I don’t care about me.’
+"那我就决定去做。因为我对自己毫不在乎。" 
 
-‘What do you mean?’
+"你这话什么意思？" 
 
-‘I don’t care about me.’
+"我对自己毫不在乎。" 
 
-‘Well, I care about you.’
+"不过，我可在乎。" 
 
-‘Oh, yes. But I don’t care about me. And I’ll do it and then everything will be fine.’
+"啊，是的。但我对自己却毫不在乎。我要去做手术，完了以后就会万事如意了。" 
 
-‘I don’t want you to do it if you feel that way.’
- 
-The girl stood up and walked to the end of the station. Across, on the other side, were fields of grain and trees along the banks of the Ebro. Far away, beyond the river, were mountains. The shadow of a cloud moved across the field of grain and she saw the river through the trees.
+"如果你是这么想的，我可不愿让你去做手术。" 
 
-‘And we could have all this,’ she said. ‘And we could have everything and every day we make it more impossible.’
+姑娘站起身来，走到车站的尽头。铁路对面，在那一边，埃布罗河两岸是农田和树木。远处，在河的那一边，便是起伏的山峦。一片云影掠过粮田；透过树木，她看到了大河。
 
-‘What did you say?’
+"我们本来可以尽情欣赏这一切，"她说。"我们本来可以舒舒服服享受生活中的一切，但一天又一天过去，我们越来越不可能过上舒心的日子了。" 
 
-‘I said we could have everything.’
+"你说什么？" 
 
-‘We can have everything.’
+"我说我们本来可以舒舒服服享受生活中的一切。" 
 
-‘No, we can’t.’
+"我们能够做到这一点的。" 
 
-‘We can have the whole world.’
+"不，我们不能。" 
 
-‘No, we can’t.’
+"我们可以拥有整个世界。" 
 
-‘We can go everywhere.’
+"不，我们不能。" 
 
-‘No, we can’t. It isn’t ours any more.’
+"我们可以到处去逛逛。" 
 
-‘It’s ours.’
+"不，我们不能。这世界已经不再是我们的了。" 
 
-‘No, it isn’t. And once they take it away, you never get it back.’
+"是我们的。" 
 
-‘But they haven’t taken it away.’
+"不，不是。一旦他们把它拿走，你便永远失去它了。" 
 
-‘We’ll wait and see.’
+"但他们还没有把它拿走呵。" 
 
-‘Come on back in the shade,’ he said. ‘You mustn’t feel that way.’
+"咱们等着瞧吧。" 
 
-‘I don’t feel any way,’ the girl said. ‘I just know things.’
+"回到阴凉处来吧，"他说。"你不应该有那种想法。" 
 
-‘I don’t want you to do anything that you don’t want to do -’
+"我什么想法也没有，"姑娘说。"我只知道事实。" 
 
-‘Nor that isn’t good for me,’ she said. ‘I know. Could we have another beer?’
+"我不希望你去做任何你不想做的事--" 
 
-‘All right. But you’ve got to realize – ‘
+"或者对我不利的事，"她说。"我知道。咱们再来杯啤酒好吗？" 
 
-‘I realize,’ the girl said. ‘Can’t we maybe stop talking?’
+"好的。但你必须明白--" 
 
-They sat down at the table and the girl looked across at the hills on the dry side of the valley and the man looked at her and at the table.
+"我明白，"姑娘说。"咱们别再谈了好不好？" 
 
-‘You’ve got to realize,’ he said, ‘ that I don’t want you to do it if you don’t want to. I’m perfectly willing to go through with it if it means anything to you.’
+他们在桌边坐下。姑娘望着对面干涸的河谷和群山，男人则看着姑娘和桌子。 
 
-‘Doesn’t it mean anything to you? We could get along.’
+"你必须明白，"他说，"如果你不想做手术，我并不硬要你去做。我甘心情愿承受到底，如果这对你很重要的话。" 
 
-‘Of course it does. But I don’t want anybody but you. I don’t want anyone else. And I know it’s perfectly simple.’
+"难道这对你不重要吗？咱们总可以对付着过下去吧。" 
 
-‘Yes, you know it’s perfectly simple.’
+"对我当然也重要。但我什么人都不要，只要你一个。随便什么别的人我都不要。再说，我知道手术是非常便当的。" 
 
-‘It’s all right for you to say that, but I do know it.’
+"你当然知道它是非常便当的。" 
 
-‘Would you do something for me now?’
+"随你怎么说好了，但我的的确确知道就是这么回事。" 
 
-‘I’d do anything for you.’
+"你现在能为我做点事儿么？" 
 
-‘Would you please please please please please please please stop talking?’
+"我可以为你做任何事情。" 
 
-He did not say anything but looked at the bags against the wall of the station. There were labels on them from all the hotels where they had spent nights.
+"那就请你，请你，求你，求你，求求你，求求你，千万求求你，不要再讲了，好吗？" 
 
-‘But I don’t want you to,’ he said, ‘I don’t care anything about it.’
+他没吭声，只是望着车站那边靠墙堆着的旅行包。包上贴着他们曾过夜的所有旅馆的标签。 
 
-‘I’ll scream,’ the girl said.
+"但我并不希望你去做手术，"他说，"做不做对我完全一样。" 
 
-The woman came out through the curtains with two glasses of beer and put them down on the damp felt pads. ‘The train comes in five minutes,’ she said.
+"你再说我可要尖声叫了。" 
 
-‘What did she say?’ asked the girl.
+那女人端着两杯啤酒撩开珠帘走了出来，把酒放在湿漉漉的杯垫上。"火车五分钟之内到站，"她说。 
 
-‘That the train is coming in five minutes.’
+"她说什么？"姑娘问。 
 
-The girl smiled brightly at the woman, to thank her.
+"她说火车五分钟之内到站。" 
 
-‘I’d better take the bags over to the other side of the station,’ the man said. She smiled at him.
+姑娘对那女人愉快地一笑，表示感谢。
 
-‘All right. Then come back and we’ll finish the beer.’
- 
-He picked up the two heavy bags and carried them around the station to the other tracks. He looked up the tracks but could not see the train. Coming back, he walked through the bar-room, where people waiting for the train were drinking. He drank an Anis at the bar and looked at the people. They were all waiting reasonably for the train. He went out through the bead curtain. She was sitting at the table and smiled at him.
+"我还是去把旅行包放到车站那边去吧，"男人说。姑娘对他笑笑。 
 
-‘Do you feel better?’ he asked.
+"行。放好了马上回来，咱们一起把啤酒喝光。" 
 
-‘I feel fine,’ she said. ‘There’s nothing wrong with me. I feel fine.’
+他拎起两只沉重的旅行包，绕过车站把它们送到另一条路轨处。他顺着铁轨朝火车开来的方向望去，但是看不见火车。他走回来的时候，穿过酒吧间，看见候车的人们都在喝酒。他在柜台上喝了一杯茴香酒，同时打量着周围的人。他们都在宁安毋躁地等候着列车到来。他撩开珠帘子走了出来。她正坐在桌子旁边，对他投来一个微笑。 
+
+"你觉得好些了吗？"他问。 
+
+"我觉得好极了，"她说。"我又没有什么毛病罗。我觉得好极了。" 
